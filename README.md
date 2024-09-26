@@ -33,7 +33,7 @@
 - 🌐 Web Enthusiast: I thrive in the ever-evolving web landscape, constantly learning and adopting new technologies to stay at the forefront.
 
 ## Let's Connect
-- 📫 You can reach me via email at [Your Email Address], or connect with me on LinkedIn: [Pratik Vairat](https://www.linkedin.com/in/pratik-vairat4/).
+- 📫 You can reach me via email at pratikvairat30@gmail.com , or connect with me on LinkedIn: [Pratik Vairat](https://www.linkedin.com/in/pratik-vairat4/).
 - 🐦 Catch up with my thoughts and tech insights on Twitter: [@pratikvairat30](https://twitter.com/pratikvairat30).
 
   
